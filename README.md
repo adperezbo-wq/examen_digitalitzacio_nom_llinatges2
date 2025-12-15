@@ -1,0 +1,1 @@
+# examen_digitalitzacio_nom_llinatges2
